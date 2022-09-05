@@ -1,2 +1,2 @@
 # MySEProject
-Hi! This is Manasvi.
+Hi! This is Kritika.
